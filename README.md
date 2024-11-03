@@ -1,5 +1,6 @@
 ranking dos álbuns da joanna newsom
 
+
 1- ys
 
 2- divers
